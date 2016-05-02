@@ -1,2 +1,2 @@
 # jrocha63.github.io
-Hello my name is Joel Rocha and I am in the 11th grade. I create websites lawlz
+Hai!! mi name iz Jole Rocha LAWLz. i liek to RAWr wen i am howm alone. 2day i wok up 2 da sound of ChiRps of dA biRds
